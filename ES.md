@@ -1,0 +1,7 @@
+#Freedom and shit - uno Manifiesto
+
+1) Todos somos seres humanos. Alias La reina de Inglaterra caga también.
+2) Somos muchos y cada uno es diferente. Todos tenemos calidades que pueden ser las mismas que las de los demas. Alias La fuerza está en los números.
+3) Vivimos en este planeta, con suficientes recursos para todos, siempre y cuando se utilicen de manera equitativa y responsable. Tenemos el conocimiento técnico y científico adecuado para modificar radicalmente nuestra relación con nuestro planeta. Alias La tierra es nuestro hogar.
+4) Somos diferentes e iguales, tenemos objetivos diferentes pero seguimos siendo parte de apenas una sola especie (respecto a todas las que se hallan en nuestro planeta), con las mismas necesidades biológicas y emocionales como por ejemplo la comida, el agua, tener un refugio, el contacto humano, las experiencias de la vida y tener propósitos. Alias los derechos humanos FTW. 
+5) Somos parte de un ecosistema. No somos la única especie, mas bien somos sólo una de tantas. Podemos encontrar maneras para vivir en paz y en armonía, compensando nuestras necesidades con las de los demás. Podemos crear una simbiosis universal. Alias Necesitamos la Tierra, pero la Tierra no nos necesita.
